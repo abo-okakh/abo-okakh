@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @abo-okakh 
-- 🧑🏽‍ I am interested in , programming, as are many of us here, and I also enjoy sports
-- 🌱 I’m currently learning , artificial intelligence   
+Hello, I'm under the water please help me, here too much raining
+
+Yeah... I have imposter syndrome.
